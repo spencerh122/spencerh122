@@ -10,6 +10,6 @@ Please feel free to contact me with any questions you may have.
 
 Phone: +1-617-584-9266
 
-Email: Spencer.hart12@gmail.com
+Email: spencer.hart12@gmail.com
 
 LinkedIn: linkedin.com/in/spencer-hart
